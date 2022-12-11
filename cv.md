@@ -6,7 +6,7 @@
 * Phone: +995 551 549 801
 * E-mail: grigoriev.mailbox@gmail.com
 * GitHub: [angrigit](https://github.com/angrigit)
-* Telegram: [angri_post](https://t.me/)
+* Telegram: @angri_post
 
 # About Me
 
